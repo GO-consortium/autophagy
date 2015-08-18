@@ -4,4 +4,4 @@ Minutes [3 June 2015](https://docs.google.com/document/d/1W7RbJUch6cr1pR-gcuZxYb
 Minutes [17 June 2015](https://docs.google.com/document/d/1_OvECbHS8HnJEaK3iQ-VRQPOgNxlgnAIGuj5YdjC0RI/edit#heading=h.v53tzmi1xhd1)  
 Minutes [8 July 2015](https://docs.google.com/document/d/10vkLY-dV-oiBGVYr8hSF7q4dlowtzKUzeFC0zZbVATE/edit#)  
 [Spreadsheet showing progress annotating putative autophagy-regulating proteins](https://docs.google.com/spreadsheets/d/19gP5D77B8eW2zhlFMgGFMlb7_Cu9hthrXEkYtzbXpks/edit#gid=0)  
-Agenda [19th August 2015](https://docs.google.com/document/d/10vkLY-dV-oiBGVYr8hSF7q4dlowtzKUzeFC0zZbVATE/edit#heading=h.v53tzmi1xhd1)
+DRAFT agenda [19th August 2015](https://docs.google.com/document/d/10vkLY-dV-oiBGVYr8hSF7q4dlowtzKUzeFC0zZbVATE/edit#heading=h.v53tzmi1xhd1)
