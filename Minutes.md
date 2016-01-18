@@ -7,4 +7,5 @@ Minutes [8 July 2015](https://docs.google.com/document/d/10vkLY-dV-oiBGVYr8hSF7q
 Minutes [19th August 2015](https://docs.google.com/document/d/1V_EqJdF6zFNHQgIiDRL2s5mCfWUuRxdj2aucYqMPb0Q/edit#heading=h.v53tzmi1xhd1)  
 Minutes [September 16th](https://docs.google.com/document/d/1aUKM6_1OPI-1eS0d7KX3y2DHXPcLNGCgPBVk5jcPQkQ/edit#heading=h.dbup7kx5oaex)  
 Minutes [October 14th] (https://docs.google.com/document/d/116e4TbFxcUAtzXjFmeGY3vQ0O-rnmbsqt2BId5Ilu0E/edit)  
-Minutes [November 14th] (https://docs.google.com/document/d/1fjv0ztp-EFTzA2hBBkGoBGnz7WqqHGqontwpMxe-Zjw/edit#)
+Minutes [November 14th] (https://docs.google.com/document/d/1fjv0ztp-EFTzA2hBBkGoBGnz7WqqHGqontwpMxe-Zjw/edit#)  
+Minutes [December 17th] (https://docs.google.com/document/d/1I2Ed94EHC8xrhez1Y7VqMkTee9qfAtENoTYNXd_x940/edit#)  
