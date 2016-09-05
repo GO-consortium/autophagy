@@ -17,5 +17,5 @@ Minutes [May 4th] (https://docs.google.com/document/d/16oV5nvAICRscdm2q9tIY7R1aQ
 Minutes [June 1st] (https://docs.google.com/document/d/1MTrIBWi8NgDCLwCCkKvVl7v9vsWTBGz0jZby1eKGNbg/edit#heading=h.fll0uki5mrzs)  
 Minutes [June 29th] (https://docs.google.com/document/d/1_1jDuA9svYeCTEzmOzm1O7DBm6Pz6GPKMFn-5swoxyk/edit#heading=h.fll0uki5mrzs)  
 Minutes and notes from August 3rd [July 6th] (https://docs.google.com/document/d/1_cG8kCK85kaXB8PhYwK2uEYTUFoKL6Osl6wzmLKwFCU/edit)  
-Minutes [August 10th] (https://docs.google.com/document/d/1vrp-FxQk0vC_A0kgbxRGKFCcRsfjqhDqLBW3GJ9m84A/edit#) 
+Minutes [August 10th] (https://docs.google.com/document/d/1vrp-FxQk0vC_A0kgbxRGKFCcRsfjqhDqLBW3GJ9m84A/edit#)  
 Minutes [August 24th] (https://docs.google.com/document/d/1vdj9Xn85SIZbQWX7S22k-q_7Ka7MYi4EupjZu33hlYU/edit#heading=h.dbup7kx5oaex)  
