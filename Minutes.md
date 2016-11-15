@@ -21,3 +21,4 @@ Minutes [August 10th] (https://docs.google.com/document/d/1vrp-FxQk0vC_A0kgbxRGK
 Minutes [August 24th] (https://docs.google.com/document/d/1vdj9Xn85SIZbQWX7S22k-q_7Ka7MYi4EupjZu33hlYU/edit#heading=h.dbup7kx5oaex)  
 Minutes [September 7th] (https://docs.google.com/document/d/1gtICfH3YQpnKbWqx2XI4JP5wlfp-6HxzWIQ1xFa8l9g/edit#)  
 Minutes [September 28th] (https://docs.google.com/document/d/1Muo_174RO_nYPOjki_TPzbU74w3SqmTwAJH8YN7tlG8/edit#heading=h.fll0uki5mrzs)  
+Minutes [October 20th] (https://docs.google.com/document/d/1TIcHIYTQvZcIQFyWEPIhE33FEYzf0NwmEDGeYAAT69M/edit)  
